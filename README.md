@@ -1,1 +1,1 @@
-Yakaka is proud be accepted by ALX
+Yakaka is proud to be accepted by ALX
